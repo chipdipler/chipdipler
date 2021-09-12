@@ -1,5 +1,5 @@
 apologies ahead of time if i mess anything up
-ill try my very best to stay diligent and respectful'
+ill try my very best to stay diligent and respectful
 
 
 
